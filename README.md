@@ -5,7 +5,7 @@
 In new this project <H3>
 
 
-Dibuat pada 29 Desember 2022 Jangan Lupa support:)---
+---
 
 Creator  
 **VINO ALZWARA** <br>
