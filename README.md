@@ -9,7 +9,7 @@ In new this project <H3>
 
 Creator  
 **VINO ALZWARA** <br>
-Layanan : vinoalzwara@gmail.com <br>    
+Layanan : vinoalzwarav@gmail.com <br>
 Demo live : https://universitasvipi.000webhostapp.com/
 
 
